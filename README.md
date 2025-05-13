@@ -23,5 +23,5 @@ Marawis-Nekata sering tampil dalam:
 
 ## Foto
 
-<img src ="Screenshot 2025-05-13 220337.png">
+<img src ="Screenshot 2025-05-13 220648.png">
 *Sumber: Wikimedia Commons*
